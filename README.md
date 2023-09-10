@@ -1,1 +1,1 @@
-koushik is bad person
+: koushik is bad person
